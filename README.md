@@ -1,8 +1,8 @@
 # japonesdashoppe
 
-meu e japones 
+meu tempo e precioso 
 
-estou perdendo o meu tempo no alulura
+estou perdendo o meu tempo no alura
 estou desenvolvedo esses passos no sarve crispte
 e meu pojeto nessa bomba
 -
